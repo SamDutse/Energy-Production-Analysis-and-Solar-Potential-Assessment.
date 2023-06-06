@@ -1,0 +1,1 @@
+# Energy-Production-Analysis-and-Solar-Potential-Assessment.
